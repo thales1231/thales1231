@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Thales G. S.
+- My nickname is Growp
